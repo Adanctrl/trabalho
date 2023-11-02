@@ -1,2 +1,2 @@
 # trabalho
-trabalho de emprendedorismo
+trabalho de empreendedorismo
